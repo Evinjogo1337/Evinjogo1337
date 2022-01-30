@@ -1,0 +1,1 @@
+- Herzlich Willkommen in Clash Royale Community
